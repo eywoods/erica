@@ -1,0 +1,103 @@
+<html><body><table>
+<tbody>
+<tr>
+<td></td>
+<td valign="top">
+<div id="IWS_WH_Zone1">
+<div id="General_Content"><img src="http://ewoods.community.officelive.com/images/8-8-07%20flowers%203.JPG" alt=""></div>
+<div><strong><em>Tempos Modernos</em> </strong>(Modern Times)
+An Interview with Erica Woods
+Creator/Director of <em>Projeto de Habitação dos Desabrigados da Bahia </em>(Bahia Homeless Housing Project)By: Ana Paula Oliveira
+Portuguese translation by: Ana Paula Paim de Oliveira-Stansell
+Photos by: Bethany Nagy</div>
+<div>Published in Soul Brazil Magazine, October 2007<em><strong>Tell me about the title you’ve chosen for this interview.
+</strong></em>Tempos Modernos is one of my favorite songs. It opens with the line “<em>Eu vejo a vida melhor no futuro</em>” (I see a better life in the future) and ends, “<em>Vamos viver tudo que há pra viver, vamos nos permitir</em>.” (Let’s live all there is to live, let’s permit ourselves.) It felt appropriate.<strong><em>Please tell me a bit about yourself.</em></strong>
+I’m the mother of two incredible young men – they are 21 and 18 …almost 19. They are my greatest gifts to the world.I was born in Birmingham, Alabama. My mother courageously brought me to Los Angeles, California …Hollywood …when I was 2 years old. I was reared there in an incredible community comprised of people from all parts of the world and walks of life. I grew up speaking Spanish. I also grew up loving music and dance. I lived in Europe, traveled extensively (although, I feel I’m just getting started and intend to see every corner of the world before I take my last breath). I’ve written two books – one fiction and one non-fiction – I’d love to see published soon.I’m not very adept at talking about myself …I’m much better at talking about PHDB …isn’t that why we’re here?<strong><em>Indeed. How did this project come about for you?</em></strong>
+I first traveled to Brazil in 1995. I found Sao Paulo an interesting city, and found Rio fascinating, but intense. I felt myself at home before the plane touched down in Salvador. I felt myself committed, from that first moment, to helping Bahia and her people …my people.
+
+My first attempt at helping involved taking money from my wealthy employer and giving it to friends in Brazil. It was a very well intended bad idea that landed me into loads of trouble …that’s another story, though – and it’s covered fully in my book, A Day Without Me. However, instead of ending my deep desire to help, it only fueled my passion. Further, I understood that I was doing no more than putting a band-aid on a much larger problem.
+
+I spent several years garnering an education in homelessness by working for different homeless organizations in Los Angeles. What I found, amongst other things, is that there are myriad opportunities in the United States for homeless people to change their circumstances. As I traveled to Brazil every year, I came to understand that the same is not true for Brazil’s homeless. For several years, I spent whole days wandering the streets of Salvador speaking to homeless people, buying homeless children lunch or a pair of shoes, and providing English classes to young “disadvantaged” adults. I asked them what they felt they needed to change their circumstances. The overwhelming response I received was a single word – “Opportunity.” I knew then that my work would be in somehow helping to provide opportunities.
+
+The actual idea for PHDB (which stands for Projeto de Habitação dos Desabrigados da Bahia, or the Bahia Homeless Housing Project) came as a daydream one afternoon while I was driving home from yoga. It felt terrifying and overwhelming – get funding from Brazilians, create housing and schools, build communities of people who learn to sustain themselves, and foster the creation of opportunities for people to effect change in their lives. I pulled my car over and wrote it all down. The more terrifying it seemed, the more excited I was to get started.
+
+I knew it wouldn’t happen until my sons could take care of themselves. They have been priority number 1. That said, they’ve known for 12 years that mom would be moving to Brazil when they grew up. I’m honored to say that they are now very capable grown men.
+
+So, I’m off to Bahia.
+
+<em><strong>Why Bahia?</strong></em>
+In the same way that all of humanity owes its existence to the first 2 humans who walked the Earth, so do all Brazilians owe their existence as Brazilians to Bahia. Bahia is the birthplace of Brazil and is, therefore, the perfect birthplace for PHDB.
+
+For me, Bahia was the first place that ever felt like home to me. I’ve always felt myself a bit of a misfit in the US – even in laid back L.A. In Bahia, I felt I’d found my tribe – whether in the city of Salvador or in the small towns along the Paraguasu River, or on the other side of the Bay, I always feel at home in Bahia. I don’t view Bahia, or Salvador, as a passing fancy or as a tourist attraction, nor do I view it with “stars in my eyes.” I see it as home …and I want my home to flourish, grow stronger, smarter, and more financially stable. I want my home to relish in the great wealth in itself that I see as I walk its streets and breathe its air. That worth, that wealth, begins with uplifting the people and giving them the opportunity to change their circumstances. I have a passion for Brazil …and a singular passion for Bahia.
+
+<em><strong>Why Brazil?</strong></em>
+Because it’s necessary. Further, in my opinion, Brazil is amongst the most powerful places on the planet – second only to Africa. The fact that Brazilians, like Africans, are not living fully in their power does not change the fact that the power exists. PHDB’s intention is to assist Brazilians in re-claiming their power by providing the basic launching boards – access to homes, education, employment and healthcare. PHDB is not a hand-out or shelter program. Every person in our community will know, on no uncertain terms that they are required to work, grow and change their circumstances daily to remain a member of the PHDB community.
+
+<em><strong>Why you? What is your motivation?</strong></em>
+My motivations are love and gratitude.
+
+Love has no other desire but to exist and flow. I love Bahia, and Brazil as a whole, and feel that PHDB is the best way that I can show that love and be of service. PHDB is my way of loving Brazil. It is also my sweet, humble ‘thank you’ to all my ancestors dating back to the first two humans. In living my best life and stepping up to the challenges and joy that PHDB will present, I’m showing my gratitude to my ancestors, my familiars and the Divine for the blessings and bounty of my life.
+
+<em><strong>Why not rely on 100% foreign investors for PHDB?</strong></em>
+Because that antiquated model has never worked. The only way for PHDB to work – for lasting change to become possible – is through local (Brazilian) participation on every level. If Brazil is not prepared to invest in Brazilians, then Brazil will fall. And if Brazil falls, all Brazilians fall, not only the poor and disenfranchised who already appear to be “down and out”, but also the wealthy and educated who will find themselves forced to leave their beautiful homes and their beautiful country because they’ll find they are prisoners – imprisoned by the masses who, forced by their circumstances, will rob them, attack them and beg every time they leave their homes – homes which eventually will not be safe because of the desperate masses of people who feel they, unfortunately, have nothing to lose.
+
+If one wants proof of this rapid decline, one only needs to look to the United States. As the middle class disappears, crimes of opportunity are rising. As America invests more in foreign business opportunities and gives jobs, by the 10’s of thousands, to people in India, China and Mexico – taking these jobs from capable Americans and creating virtual ghost towns in many of America’s small towns, the nation is falling deeper into debt, deeper into poverty, and deeper into its own destruction. As the US government shows its disinterest in taking care of Americans – such as is currently occurring in New Orleans – the American public is facing a stark reality, realizing that New Orleans could happen anywhere and that none of us would be treated any differently. As basic systems like education and healthcare are lacking and are becoming, like home ownership, an elitist opportunity, Americans are looking for a way to get back to simpler realities that, in many ways, simply no longer exist.
+
+Fortunately, Brazil is NOT the US. Brazil does not live by this model, nor does it need to die by the same sword.
+
+<em><strong>But, as an American, aren’t you merely part of the problem? An opportunist?</strong></em>
+I’m grateful for the land of my birth, and all the opportunities it has provided me. That said, I’ve never been what’s commonly called a “good American”. Rather, I’ve always been a bit of a misfit who has concerned myself more with the world as a whole than with the US as a separate entity. Further, at a very young age, perhaps because I was blessed to travel quite a bit, I knew that there was little “right” about the US model for living. I am a Global Citizen. The world is in my blood – I have as much Irish, French, Dutch, Spanish and British blood in my veins as African and Native American – and the world is my home. PHDB is merely the beginning, in my eyes. I’d like to see the PHDB model used all over the planet, wherever homeless, uneducated, and underserved people reside, there is a possibility for the levels of growth, change and healing PHDB will provide.
+
+And, as for being an opportunist – no. This project isn’t about me. It’s about helping people help themselves. I’m crystal clear on that.
+
+<em><strong>So is this missionary work?</strong></em>
+I’ve been asked that quite often actually. The answer is always No.
+
+Missionary workers come in with a plan to “fix” something they see (or have been taught by their religion) as “broken”. Bahia …all of Brazil … is not broken. In many ways, it is healthy and flourishing – a virtual paradise with a quality of life that’s been missing on a large scale in the US (and many other places I’ve traveled to) for many years. PHDB is simply a tool, a service provided so that people have more choices about how they want to conduct their lives. PHDB will not make changes, or “fix” anyone. If change occurs, it will be 100% their choice …and what specific changes occur will also be fully up to each individual.
+
+<em><strong>How will it work?</strong></em>
+It will be a lot of work, but on paper, I imagine it looks very simple. Investors will sign agreements to provide X amount of Reais (Brazilian currency) and X amount of jobs and/or services once our community is established. If applicable, they will also agree to provide job training. Investor funds will be used through the several stages of the project – 1) purchasing abandoned buildings around Salvador, 2) designing the re-construction (which, of course, will be done by architects working with PHDB), 3) creating the new, viable spaces – all of which will be run primarily on Solar Power (contractors, construction crews and solar power experts will be employed for this purpose). As the facilities come close to completion, 4) staff will be hired for every job that needs to be filled from doctor to security guard, and 5) we will begin the screening process for our community of people – selecting homeless people who want to change their circumstances, who, given the tools, are willing to do the work necessary to manifest change in their lives. As the pilot project opens its doors, we will 6) present large scale fund-raisers such as <em>O Navio Negreiro</em> (a musical show) to further involve the communities of Salvador, Bahia and Brazil as a whole. After the pilot project has been active for approximately 6 months and is running smoothly, we will begin again – gathering more funding, purchasing more buildings and continuing to build upon the PHDB community so that real change can continue to manifest in larger numbers.
+
+<em><strong>How much naïveté do you feel you’re bringing to this project?</strong></em>
+Not much. I mean, an ounce or two of naïveté is necessary to begin anything that is truly new and different …and as huge as PHDB. However, beyond that two ounces of naïveté, I know that PHDB is going to require a lot of hard work, dedication, patience, collaboration, perseverance and learning …and perhaps a few shots of good cachaça. I anticipate many sleepless nights, delays, changes to plans in midstream …I fully expect the unexpected at every turn. I’m actually looking forward to it all. Change really is the only constant in life, and I feel ready for the inevitable constant changes that will be associated with PHDB. Further, I don’t believe that PHDB will end homelessness. What I do believe is that PHDB will offer something that currently does not exist in Bahia, a choice.
+
+<em><strong>Where do you see yourself in 10 or 15 years?</strong></em>
+In 10 or 15 years, I’d like to have turned PHDB (which, by then will stand for Projeto de Habitação do Brasil) over to a capable group of Brazilians. I’d like to be consulting with other parts of the world for models of similar projects in their countries, states or cities.
+
+<em><strong>What does PHDB need?</strong></em>
+Support, of course. Like all non-profit organizations, PHDB will only thrive if it is fully supported, with funding, supplies, computers, etc. I have sent support letters and approached potential Brazilian investors (and will continue to do so), but there’s also celebrity support, computer companies, lumber and construction supplies. I will be sending letters soliciting support to all sorts of people and organizations in Brazil and in the US. The more support PHDB gets, the more it flourishes.
+
+PHDB also needs employees. When I arrive in Salvador in September, I will be looking for accountants, assistants, architects and the like.
+
+<em><strong>What if it doesn’t work?</strong></em>
+If it doesn’t work, I will have tried. I read a beautiful quote recently about listening to the voice inside that calls you to do your part toward taking care of the world. PHDB is that for me …I’m stepping up and doing the work I feel called to do. In the end, that’s what really matters.
+
+<em><strong>What about corruption and this concept of “non-accountability” in Brazil?</strong></em>
+If I allowed myself to be daunted by corruption, I couldn’t get out of bed every morning. Corruption, like politics, is everywhere. It’s in the way the US government functions, in the way the Brazilian government functions, it’s in the way every government functions.
+
+So what!
+
+I agree with Jeffrey Sachs, I am impatient with the excuse of corruption. Corruption gets used to promote and promulgate inertia. I’m bored with that excuse.
+
+For better or worse, the same is true of this “non-accountability” you speak of. Politicians and government officials all over the world are famous for not being “accountable” for all sorts of acts and actions dating back to the beginning of politics.
+
+Accountability is not in the governments of a country, it’s in its people. It’s in the great-grandmother who, at 80-something years old, still walks 5 miles to catch a bus into town to do the laundry of a middle- or upper-middle-class family (for minimum wage) so she can feed, house and clothe her children, grand-children and great-grandchildren. It’s in the way that same great-grandmother gets up early to make sure her entire family is fed before she leaves the house and in the way that she, after working all day and walking 10 miles, gets home and continues to take care of her family. That’s the level of accountability I’m interested in. Those are the people I’m interested in working with. Those are the people I’m interested in serving.
+
+<em><strong>What will you do to keep corruption out of PHDB?</strong></em>
+Whatever is necessary. If I have to hire an accounting team from Sri Lanka or San Francisco because I’ve had to fire a corrupt Brazilian accounting team, I will. If I have to micro-manage every department to check where every centavo is being spent, I will. As I’ve said before, PHDB is about Brazilians helping Brazilians. Anyone who sees fit to steal from, or otherwise create corruption within, the organization really has no business being a part of it. PHDB will have checks and balances, and employ outside resources to check on our checks and balances.
+
+<em><strong>Sounds impressive …and expensive.</strong></em>
+It won’t be – either, actually. It will simply be a means to an end, insuring the integrity of PHDB and its interests.
+
+<em><strong>It certainly sounds like you have all the answers.</strong></em>
+That’s funny. I mean, I’m glad it sounds that way. I don’t feel like I have all the answers. I simply feel open to every question, every challenge and every adventure associated with PHDB. As surely as the challenges will arise, so the answers and solutions will come. I’m simply here to do my part.
+
+To contact Ms. Woods regarding PHDB, please leave a comment.
+
+About the interviewer:  <em>Ana Paula was born and reared in Salvador, Bahia, Brazil. She received her Bachelor’s Degree in Letters at the Catholic University of Salvador. Ana Paula is a professor, writer, editor and translator, as well as an incredible personal chef and the mother of a beautiful baby boy. Currently she resides with her family in Quartz Hill, California.</em>
+
+</div>
+</div></td>
+</tr>
+</tbody>
+</table></body></html>

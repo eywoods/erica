@@ -1,0 +1,3 @@
+<html><body><p> 
+</p><p style="text-align: right;"><strong>February  2012</strong></p>
+I'll post updates on my life, e-mails to friends, and other random musing moments here.</body></html>

@@ -1,0 +1,25 @@
+<html><body><p>It is always difficult to write about myself ...mostly because I feel that I'm always just beginning a chapter of my life that feels very much like the first.
+
+I suppose that's as proper an analogy about life as any, though, right?  A journey of a hundred first chapters.
+
+My dear sister friend, Laura F., helped me write this years ago as a bio for an interview. It's as close to a bio as I believe I'll ever get. That, and a few choice photos could probably begin to scratch the surface of the book of my life.
+
+***********
+
+I have lived nine full lives in less than four decades …and am just getting started.  I have chosen to use each life to breathe new energy and wisdom into the next while maintaining a sense of wonder, awareness and excitement about the miraculous paths along which my journey is leading me and whom I will meet and take with me along the way. I am finding that each life, regardless of its high or low details, is leading me deeper in to the discovery of my own Divinity.
+
+Like many human beings, I’ve had insecurities, fears, doubts and life experiences I’m not proud to say I’ve participated in.  I realized, during a deep spiritual low point, that I could either allow those things to hold me back and keep me from living my best life or invest every ounce of my energy into transforming the illusions of fear, doubt, control and insecurity into love, faith, reverence for the Divine within, and strength.  I have learned to love and forgive myself (and others) for the things I wasn’t proud of and the true value of what it means to live from a place of what the Native Americans call “Right Relationship”.  By example, I teach self-love, love for the planet, the miraculous joy that comes from taking leaps-of-faith, and how essential it is that each of us use our voices and actions to do our respective work to help heal the planet, and ourselves in the process.
+
+I feel I generate success in my life by leading by example as best I can.  My loved ones often tell me how “incredible” my life experiences have been/are and how “courageous” I am.  I know I am no more incredible or courageous than anyone.  I’ve simply decided that when I feel fear, it means <em>Go</em>, not stop.  I’ve committed my life to loving myself enough to lift my wings and allow the will of the wind to carry me to the most miraculous peaks. As a result, through my work with others, they also dust off their wings and see that all that incredible courageousness lives inside them and has just been waiting for them to let it out.
+
+I believe we are all essentially love.  As love, I do my best to honor the Divine within and all around in my every action – my every breath.
+</p><div class="mceTemp">
+
+<a href="/wp-content/uploads/2012/02/IMG_4705-CPK-23.jpg"><img class="wp-image-54 size-medium" title="IMG_4705 - CPK 2" src="/wp-content/uploads/2012/02/IMG_4705-CPK-23-300x225.jpg" alt="" width="300" height="225"></a> My greatest joy - my beloved and my sons
+
+</div>
+This is one of my favorite shots because it was the first time we were all together.  We'd laughed almost non-stop through dinner.  It was the best homecoming I could have imagined.
+
+<a href="/wp-content/uploads/2012/02/natalia-b-w4.jpg"><img class="size-medium wp-image-55" title="natalia - b &amp; w" src="/wp-content/uploads/2012/02/natalia-b-w4-198x300.jpg" alt="" width="198" height="300"></a> My greatest sadness - the loss of our sweet Natalia
+
+I've always found it appropriate that the nurse shot this photo in black &amp; white.  I felt the color drain from my world that day.</body></html>
