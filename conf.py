@@ -135,8 +135,13 @@ TRANSLATIONS_PATTERN = "{path}.{lang}.{ext}"
 NAVIGATION_LINKS = {
     DEFAULT_LANG: (
         ("/archive.html", "Archives"),
-        ("/categories/index.html", "Tags"),
-        ("/rss.xml", "RSS feed"),
+        ("/pages/himalayas.html", "The Patron Saint of the Himalayas"),
+        ("/pages/about-me.html", "About Me"),
+        ((('/pages/phdb.html', 'Main'),
+          ('/pages/phdb/article-english.html', 'Article - English'),
+          ('/pages/phdb/artigo-portuguese.html', 'Artigo - Portuguese'),
+          ('/pages/phdb/intentions.html', 'Intentions'),
+          ('/pages/phdb/intentions-portuguese.html', 'Intentions - Portuguese')), 'PHDB'),
     ),
 }
 
