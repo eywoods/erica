@@ -21,7 +21,7 @@ BLOG_AUTHOR = "Erica"  # (translatable)
 BLOG_TITLE = "Erica Y. Woods"  # (translatable)
 # This is the main URL for your site. It will be used
 # in a prominent link. Don't forget the protocol (http/https)!
-SITE_URL = "http://ericayvettewoods.com/"
+SITE_URL = "https://ericayvettewoods.com/"
 # This is the URL where Nikola's output will be deployed.
 # If not set, defaults to SITE_URL
 # BASE_URL = "http://ericayvettewoods.com/"
