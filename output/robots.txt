@@ -1,4 +1,0 @@
-Sitemap: https://ericayvettewoods.com/sitemapindex.xml
-
-User-Agent: *
-Host: ericayvettewoods.com

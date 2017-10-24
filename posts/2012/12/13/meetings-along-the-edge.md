@@ -11,11 +11,11 @@ Anoushka was a special treat for me.  I’d just seen her in Los Angeles a week
 So, I wrote down the information and made my plan.  The next night, bundled against the cold, I went out, armed with the address and a deep desire to go to that transcendent place Ravi’s live music always takes me to.  After a 45-minute rickshaw ride to some unknown (to me) spot in Delhi, I hopped out and walked into this spectacular park, filled – like many of the parks in Delhi – with the ruins of a lost age.  It wasn’t long before I found it – the makeshift stage with cloth and flowers overhead, the enraptured fans standing, sitting on chairs, or cross-legged in the grass. I felt like I’d arrived – not in a park in a strange city, but at a familiar rest stop filled with love and warmth.
 
 I was in Ravi Shankar’s presence.  All was totally right with the world.
-</p><p style="text-align: center;"><img class="aligncenter wp-image-139" src="../wp-content/uploads/2012/12/Ravi-Anoushka-Shankar-8-300x225.jpg" alt="Ravi &amp; Anoushka Shankar (8)" width="400" height="325"></p>
-<p style="text-align: center;"><img class="aligncenter wp-image-138" src="../wp-content/uploads/2012/12/Ravi-Anoushka-Shankar-7-300x225.jpg" alt="Ravi &amp; Anoushka Shankar (7)" width="400" height="325"></p>
+</p><p style="text-align: center;"><img class="aligncenter wp-image-139" src="/wp-content/uploads/2012/12/Ravi-Anoushka-Shankar-8-300x225.jpg" alt="Ravi &amp; Anoushka Shankar (8)" width="400" height="325"></p>
+<p style="text-align: center;"><img class="aligncenter wp-image-138" src="/wp-content/uploads/2012/12/Ravi-Anoushka-Shankar-7-300x225.jpg" alt="Ravi &amp; Anoushka Shankar (7)" width="400" height="325"></p>
 
 
-<img class=" wp-image-136 " src="../wp-content/uploads/2012/12/Ravi-Anoushka-Shankar-4-300x225.jpg" alt="This one is blurry because I laughed when he laughed." width="400" height="325"> This one is blurry because I laughed when he laughed.
+<img class=" wp-image-136 " src="/wp-content/uploads/2012/12/Ravi-Anoushka-Shankar-4-300x225.jpg" alt="This one is blurry because I laughed when he laughed." width="400" height="325"> This one is blurry because I laughed when he laughed.
 
  
 
